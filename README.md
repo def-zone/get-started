@@ -1,3 +1,2 @@
-# Get Started -> Send message to me for join organizations
-- [Facebook Message](https://fb.me/tan.dct)
-- [Telegram](https://t.me/tandct)
+# Get-Started
+Send message to [Facebook Message](https://fb.me/tan.dct) or [Telegram](https://t.me/tandct) for joining our organization.
