@@ -1,2 +1,2 @@
 # Get-Started
-Send message to https://fb.me/tan.dct for joining our organization.
+Send message to [Facebook Message](https://fb.me/tan.dct) or [Telegram](https://t.me/tandct) for joining our organization.
